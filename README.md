@@ -7,7 +7,8 @@
 
 ### 其它养老照料中心相关链接
 
-- 领袖慧谷政府采购网招标公告：<a href="http://www.ccgp.gov.cn/cggg/dfgg/gkzb/201812/t20181224_11405381.htm" target="_blank">北京市昌平区回龙观镇人民政府昌平区回龙观镇领秀慧谷养老照料中心委托运营管理公开招标公告</a>
+- <a href="http://ljlaonian.com/Agency_body.asp?id=1304&qx=161" target="_blank">回龙观街道养老照料中心</a>
+- 领秀慧谷政府采购网招标公告：<a href="http://www.ccgp.gov.cn/cggg/dfgg/gkzb/201812/t20181224_11405381.htm" target="_blank">北京市昌平区回龙观镇人民政府昌平区回龙观镇领秀慧谷养老照料中心委托运营管理公开招标公告</a>
 
 ### 其它小区类似投诉
 
