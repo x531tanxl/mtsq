@@ -16,4 +16,5 @@
 
 ### 相关新闻
 
+- 百度搜索：<a href="https://www.baidu.com/s?wd=%E7%A4%BE%E5%8C%BA%E5%BB%BA%E5%85%BB%E8%80%81%E9%99%A2" target="_blank">社区建养老院</a>
 - <a href="https://m.sohu.com/a/249722890_367767/?pvid=000115_3w_a" target="_blank">小区要建养老院，业主集体阻挠 社区里建养老院您咋看？</a>
